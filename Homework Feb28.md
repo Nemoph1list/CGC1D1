@@ -30,3 +30,23 @@
 
   Changes in temperatures are already having devastating effects on the ecological, economic, and human systems in northern regions. Sea ice, glaciers, and icecaps are melting and affecting northern waters, forests, plants, and animals. Communities that rely on these resources are being forced to adapt. Even a slight shift in temperature could potentially result in an ice-free Arctic in the next few decades.
 
+
+
+> Read pgs86-87 on Climate Change in the Canadian Arctic and answer the questions on pg.87 from your text.
+
+
+
+> Take notes on International Agreements on Page 90-91. Write down 5-10 key points about both the Kyoto Protocol and the UN Framework Convention on Climate Change in 1992
+
+- reducing our GHG emissions
+- providing financial and technical resources and reporting on our progress in reducing our emissions
+- providing financial and technical resources to developing countries to help them combat climate change
+- conducting scientific observations of the world's climate system and research on climate and its effects
+
+
+
+> Why is it difficult to achieve International Co-operation for climate change? What do you believe are the differences between International and National policies on this issue?
+
+
+
+> Summarize the current views on Climate Change from page 88 and also, what are your overall views on this topic?  Give 2-3 reasons supporting your answer. What can you do as an individual to reduce your personal Greenhouse emissions? 
